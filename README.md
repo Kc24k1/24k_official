@@ -1,2 +1,2 @@
 # 24k_official
-Linktree
+Linktree.com/anyxified
